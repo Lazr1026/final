@@ -1,1 +1,3 @@
-I couldn't find any assignment or anything that would work here. I'll take the hit on the lost points.
+## The last three
+
+I have no idea what to do with those so have [this](https://docs.google.com/document/d/19eUywmVoblWdDh93gKUondY95P4X9eH2nHjKIcbbDz8/edit?usp=sharing) I guess
